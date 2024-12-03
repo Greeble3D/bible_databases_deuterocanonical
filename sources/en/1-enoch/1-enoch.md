@@ -76,7 +76,7 @@ f. And every mercy and peace and forbearance:
 g. There shall be salvation unto them, a goodly light. 
 
 i. And for all of you sinners there shall be no salvation, 
-j But on you all shall abide a curse. 
+j. But on you all shall abide a curse. 
 [5:7a] But for the elect there shall be light and joy and peace, 
 b. And they shall inherit the earth.
 
